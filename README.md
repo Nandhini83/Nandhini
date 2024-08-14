@@ -34,7 +34,6 @@ Hi, I’m Nandhini! I recently completed my postgraduate degree in Mathematics f
 
 linkedIn: https://www.linkedin.com/in/nandhini-t
 
-Thank you for visiting my GitHub profile! I am eager to apply my mathematical knowledge and analytical skills to real-world challenges and contribute to a dynamic team.
 Feel free to reach out to me via email at [nandhinit098@gmail.com].
 
 Thank you for visiting my GitHub profile! I am eager to apply my mathematical knowledge and analytical skills to real-world challenges and contribute to a dynamic team.
